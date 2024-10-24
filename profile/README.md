@@ -1,5 +1,5 @@
 # The Dark Matter
 
-> *"Dark matter is the silent scaffolding of the universe, holding galaxies together while remaining unseen, a puzzle waiting to be solved in the cosmic story."*
+> *"Dark matter is the ghost in the cosmic machine, a force we can't touch or see, yet it shapes galaxies and whispers the universe's secrets, just beyond our reach."*
 
 ---
